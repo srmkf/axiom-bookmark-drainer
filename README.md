@@ -1,4 +1,4 @@
-# 🇮🇹 IMPORTANT WARNING
+# 💵 IMPORTANT WARNING
 
 - **Hi if you've discovered this repository, congratulations! You've already achieved half the success. I have all the tools you need to achieve your best results.  🥥**
 
