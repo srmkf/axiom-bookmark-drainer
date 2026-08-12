@@ -5,6 +5,7 @@
 ## 📞 MY CONTACTS
 
 - **For any questions write here: [https://t.me/srmkf](https://t.me/srmkf)**
+- **News group: [https://t.me/coconutsrmkf](https://t.me/coconutsrmkf)**
 
 ### ⚠️ LEGAL INFORMATION
 
