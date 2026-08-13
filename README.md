@@ -7,7 +7,7 @@
 - **For any questions write here: [https://t.me/srmkf](https://t.me/srmkf)**
 - **News group: [https://t.me/coconutsrmkf](https://t.me/coconutsrmkf)**
 
-🔥If you can not have money - you can work FREE with [https://t.me/coconutsrmkfbot](https://t.me/coconutsrmkfbot). 🔥
+🔥If you can not have money - you can work FREE with [https://t.me/coconutsrmkfbot](https://t.me/coconutsrmkfbot) 🔥
 
 I always try my best to make sure my workers get good hits 💰
 
