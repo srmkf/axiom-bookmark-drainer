@@ -12,6 +12,7 @@
 I always try my best to make sure my workers get good hits 💰
 
 Axiom - 50$
+Fomo - 50$
 Padre - 20$
 Polymarket - 50$
 
