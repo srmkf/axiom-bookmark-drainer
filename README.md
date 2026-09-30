@@ -4,17 +4,10 @@
 
 ## 📞 MY CONTACTS
 
-- **For any questions write here: [https://t.me/srmkf](https://t.me/srmkf)**
-- **News group: [https://t.me/coconutsrmkf](https://t.me/coconutsrmkf)**
-
-🔥If you can not have money - you can work FREE with [https://t.me/coconutsrmkfbot](https://t.me/coconutsrmkfbot) 🔥
+- **For any questions write here: [https://t.me/soltokensup](https://t.me/soltokensup)**
+- **News group: [https://t.me/coconutosup](https://t.me/coconutosup)**
 
 I always try my best to make sure my workers get good hits 💰
-
-Axiom - 50$
-Fomo - 50$
-Padre - 20$
-Polymarket - 50$
 
 ### ⚠️ LEGAL INFORMATION
 
