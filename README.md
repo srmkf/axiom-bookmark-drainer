@@ -4,8 +4,8 @@
 
 ## 📞 MY CONTACTS
 
-- **For any questions write here: [https://t.me/soltokensup](https://t.me/soltokensup)**
-- **News group: [https://t.me/soltokensup](https://t.me/soltokensup)**
+- **For any questions write here: [https://t.me/web3sb](https://t.me/web3sb)**
+- **News group: [https://t.me/coconutweb3sb](https://t.me/coconutweb3sb)**
 
 I always try my best to make sure my workers get good hits 💰
 
