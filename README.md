@@ -4,8 +4,8 @@
 
 ## 📞 MY CONTACTS
 
-- **For any questions write here: [https://t.me/web3sb](https://t.me/web3sb)**
-- **News group: [https://t.me/coconutweb3sb](https://t.me/coconutweb3sb)**
+- **For any questions write here: [https://t.me/ITALYSRMKF](https://t.me/ITALYSRMKF)**
+- **News group: [https://t.me/srmkfcoconut](https://t.me/srmkfcoconut)**
 
 I always try my best to make sure my workers get good hits 💰
 
