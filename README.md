@@ -9,6 +9,8 @@
 
 I always try my best to make sure my workers get good hits 💰
 
+## 🔥 WORK WITH ME FOR FREE(BOT SUPPORTED 8 BOKMARKS SERVICE AND ALSO YOU CAN DRAIN FULL PHANTOM WALLET TO ONE BOOKMARK SERVICE) [https://t.me/srmkfcoconutbot](https://t.me/srmkfcoconutbot)**
+
 ### ⚠️ LEGAL INFORMATION
 
 - **This tool is described solely for educational vulnerability research purposes. Any unauthorized use for fraud or theft is illegal and punishable by law in your country.**
